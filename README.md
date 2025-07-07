@@ -18,4 +18,4 @@
 
 如果你正在寻找一个真正稳定、便捷、安全的日本AV免费在线看网站，我们将是你的不二之选。欢迎将本站添加至书签，每日访问获取最新影片更新，不错过任何一部精彩力作。让我们一起，重新定义“日本AV免费在线观看”的极致体验。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/nn55236/22012 ）</span>
